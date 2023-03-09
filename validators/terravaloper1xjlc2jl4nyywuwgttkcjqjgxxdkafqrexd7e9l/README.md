@@ -1,0 +1,1 @@
+A high uptime validator with one of the highest APY, Zero Fees, and Auto-Compounding. Our presence helps maintain the biggest burning dApp on LUNC, help us make LUNC great | https://twitter.com/TerraCasino_io | https://terracasino.io/
